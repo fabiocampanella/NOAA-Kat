@@ -22,3 +22,5 @@ Check out my [Twitter](https://twitter.com/katharine_egan)
 ##### Here's a cool picture of a coral reef in the US Virgin Islands (2013): 
 ![Coral reef in the US Virgin Islands](http://i173.photobucket.com/albums/w75/katharineegan/209_STT0713.jpg)
 
+Question for Katharine
+Are you sure you want to go to grad school?
